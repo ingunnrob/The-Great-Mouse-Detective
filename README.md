@@ -1,1 +1,1 @@
-# The-Great-Mouse-Detective
+# The Great Mouse Detective
